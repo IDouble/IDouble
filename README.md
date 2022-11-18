@@ -1,1 +1,1 @@
-![Angel](Images/Angel-Metatron.jpg)
+![Angel Metatron](Images/Angel-Metatron.jpg)
