@@ -1,4 +1,4 @@
-Hey there! 👋
+Ciao! 👋
 
 I'm a software developer with a keen interest in financial markets, analysis, and reverse engineering. I've been developing software for 10+ years, with a focus on building robust, scalable, and secure applications.
 
