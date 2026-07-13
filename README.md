@@ -2,7 +2,7 @@
   
   ![$BTC (Bitcoin) Customizable Cryptocurrency Dashboard with Chart Candlestick Price Movement Volume Bull market bullish Trend](Images/Customizable-Cryptocurrency-Dashboard-with-Chart-Binance.png)
 
-  ![Peace Through Strength - American Elephant symbolizing strength, security, innovation, and a greater future 💪 $BTC ,$ETH ,$WLFI 📈🚀🌕](Images/Peace_Through_Strength.png)
+  ![🐘 Peace Through Strength - Patriotic American Elephant symbolizing freedom, prosperity, security, innovation, and a greater future 🇺🇸 | $BTC $ETH $WLFI 📈🚀🌕](Images/Peace_Through_Strength.png)
   
   ![Bitcoin to the Moon 🚀🌕📈 $BTC (Bitcoin) and Binance Coin ($BNB) will soon reach a new all-time high, let me explain why I think that Customizable Cryptocurrency Dashboard with Chart Candlestick Price Movement Volume Bull market bullish Trend](Images/Binance_chart.png)
 
