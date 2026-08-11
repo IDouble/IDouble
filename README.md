@@ -1,5 +1,7 @@
 <div align="center">
-  
+
+  ![Als neutrales Land koennen Wir Konflikte entschaerfen und eine unabhaengige Plattform fuer Friedensgespraeche bieten](Images/Ja-zur-Schweizer-Neutralitaet.png)
+
   ![$BTC (Bitcoin) Customizable Cryptocurrency Dashboard with Chart Candlestick Price Movement Volume Bull market bullish Trend](Images/Customizable-Cryptocurrency-Dashboard-with-Chart-Binance.png)
 
   ![🐘 Peace Through Strength - Patriotic American Elephant symbolizing freedom, prosperity, security, innovation, and a greater future 🇺🇸 | $BTC $ETH $WLFI 📈🚀🌕](Images/Peace_Through_Strength.png)
