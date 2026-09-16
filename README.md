@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![Als neutrales Land koennen Wir Konflikte entschaerfen und eine unabhaengige Plattform fuer Friedensgespraeche bieten](Images/Ja-zur-Schweizer-Neutralitaet.png)
+  ![Top GitHub Banner Eagle Doge Animals Mountains Bitcoin BTC Increase Chart Crypto 📈🚀🌕](Images/Top_GitHub_Banner.png)
 
   ![$BTC (Bitcoin) Customizable Cryptocurrency Dashboard with Chart Candlestick Price Movement Volume Bull market bullish Trend](Images/Customizable-Cryptocurrency-Dashboard-with-Chart-Binance.png)
 
